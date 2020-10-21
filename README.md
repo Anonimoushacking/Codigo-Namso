@@ -1,3 +1,3 @@
 # Codigo-Namso
 
-Dont talk this whith nobody :b
+Dont talk abou this whith nobody :b
